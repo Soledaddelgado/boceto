@@ -1,1 +1,1 @@
-# boceto![Siamang infografía](https://user-images.githubusercontent.com/94653070/144522809-4c643448-8c5f-4b57-950a-248fa690d932.jpg)
+# boceto![Siamang infografía](https://user-images.githubusercontent.com/94656593/144522882-d187dd2d-f950-40d7-8214-7fddf35bb670.jpg)
